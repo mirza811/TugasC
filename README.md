@@ -1,2 +1,2 @@
 # TugasC
-gaada
+pada ngarepin apa si
